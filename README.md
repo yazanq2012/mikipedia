@@ -1,2 +1,0 @@
-# mikipedia
-be so smart
